@@ -1,0 +1,5 @@
+![1](https://github.com/dapidalpani/Tugas-7-jaringan-komputer/assets/126247854/8cf6ddf8-b388-4847-92be-deaacc0f0839)
+![2](https://github.com/dapidalpani/Tugas-7-jaringan-komputer/assets/126247854/811d6f48-6913-48d5-890e-7a6015c0888a)
+![3](https://github.com/dapidalpani/Tugas-7-jaringan-komputer/assets/126247854/0081e055-0db9-4879-9b00-645ed1b93e25)
+![4](https://github.com/dapidalpani/Tugas-7-jaringan-komputer/assets/126247854/0574581b-395d-4a39-b092-b845a4aaa3db)
+![5](https://github.com/dapidalpani/Tugas-7-jaringan-komputer/assets/126247854/5eb4805a-7081-43ef-8871-4189ab896d8b)
